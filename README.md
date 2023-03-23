@@ -1,5 +1,5 @@
 # 💫 About Me:
-Candidate Software Developer Junior
+Candidate Junior Software Developer
 
 
 ## 🌐 Socials:
